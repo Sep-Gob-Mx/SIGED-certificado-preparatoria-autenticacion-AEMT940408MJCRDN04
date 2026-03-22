@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AEMT940408MJCRDN04
+AEMT940408MJCRDN04
